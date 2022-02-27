@@ -1,0 +1,1 @@
+<img width="232" alt="2022-02-27 16_33_27-(20+) Grant Community High School District 124 _ Facebook" src="https://user-images.githubusercontent.com/1960441/155902730-ea6e2e6e-32b7-4b4b-8517-92372ec2a655.png">
